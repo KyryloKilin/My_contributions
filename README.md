@@ -11,3 +11,5 @@ https://minfin.com.ua/blogs/mcib/191087/
 https://www.producthunt.com/posts/blastapi-io-decentralized-api-platform
 
 https://www.youtube.com/watch?v=2jC6A2iCLPM&t=206s
+
+https://www.youtube.com/watch?v=Zx8E_9ylA3E

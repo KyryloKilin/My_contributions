@@ -1,5 +1,7 @@
 # My_contributions
 
+http://173.249.14.243:3000/d/singlenode/single-charon-node-dashboard?orgId=1&refresh=10s
+
 https://minfin.com.ua/blogs/mcib/190807/
 
 https://www.youtube.com/watch?v=I5tGDxNb5cc&t=11s

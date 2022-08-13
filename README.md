@@ -17,3 +17,6 @@ https://www.youtube.com/watch?v=2jC6A2iCLPM&t=206s
 https://www.youtube.com/watch?v=Zx8E_9ylA3E
 
 https://www.tiktok.com/@my_coin_is_bitcoin/video/7125299700969803013?is_copy_url=1&is_from_webapp=v1&lang=ru-RU
+
+https://www.tiktok.com/@my_coin_is_bitcoin/video/7128664632817880326?is_from_webapp=v1&item_id=7128664632817880326
+

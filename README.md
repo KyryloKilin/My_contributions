@@ -25,3 +25,5 @@ https://www.tiktok.com/@my_coin_is_bitcoin/video/7130325935181630726?is_from_web
 https://link.medium.com/DtBefTSWvsb 
 
 https://link.medium.com/v0rLwtXWvsb 
+
+https://link.medium.com/OD8RtqZWvsb 

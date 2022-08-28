@@ -46,6 +46,6 @@ https://medium.com/@mycoinisbitcoin/forta-network-is-thrilled-to-announce-its-fi
 
 https://www.instagram.com/p/ChpOpieo4mf/?igshid=MDJmNzVkMjY%3D
 
-
+https://twitter.com/KirillKilin/status/1563966511613624322
 
 

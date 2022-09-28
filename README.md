@@ -22,27 +22,7 @@ https://www.tiktok.com/@my_coin_is_bitcoin/video/7128664632817880326?is_from_web
 
 https://www.tiktok.com/@my_coin_is_bitcoin/video/7130325935181630726?is_from_webapp=v1&item_id=7130325935181630726
 
-https://link.medium.com/DtBefTSWvsb 
-
-https://link.medium.com/v0rLwtXWvsb 
-
-https://link.medium.com/OD8RtqZWvsb 
-
-https://link.medium.com/kMmVsb2Wvsb 
-
-https://link.medium.com/PqaqFa4Wvsb
-
-https://link.medium.com/g15OKs6Wvsb
-
 https://golden.com/wiki/martian_wallet-9A89V3K
-
-https://fex.net/ru/s/efbrnbz
-
-https://medium.com/@mycoinisbitcoin/%D0%BF%D1%83%D1%82%D0%B5%D1%88%D0%B5%D1%81%D1%82%D0%B2%D0%B8%D0%B5-%D0%B0%D1%84%D0%B8%D0%BD%D1%8B-%D0%B1%D0%B5%D0%B3-%D0%B2%D1%8B%D1%85%D0%BE%D0%B4-%D0%B8-%D1%81%D0%B5%D1%82%D1%8C-%D0%B0%D1%82%D0%B0%D0%BA%D0%B8-%D0%B1%D0%B8%D0%B0-3be4754255f2
-
-https://medium.com/@mycoinisbitcoin/%D0%BF%D0%BE%D0%B4%D0%BE%D1%80%D0%BE%D0%B6-%D0%B0%D1%84%D1%96%D0%BD%D0%B8-%D0%B1%D1%96%D0%B3-%D0%B2%D0%B8%D1%85%D1%96%D0%B4-%D1%82%D0%B0-%D0%BC%D0%B5%D1%80%D0%B5%D0%B6%D0%B0-%D0%B0%D1%82%D0%B0%D0%BA%D0%B8-%D0%B1%D1%96%D0%B0-f386183eec99
-
-https://medium.com/@mycoinisbitcoin/forta-network-is-thrilled-to-announce-its-first-community-content-contest-f2ba89fbb78d
 
 https://www.instagram.com/p/ChpOpieo4mf/?igshid=MDJmNzVkMjY%3D
 

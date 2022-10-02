@@ -66,7 +66,7 @@ https://www.youtube.com/watch?v=Lzi1ryJQjiM
 
 https://t.me/addstickers/Prob_q1
 
-
+https://twitter.com/KirillKilin/status/1576594392387031045
 
 
 

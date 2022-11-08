@@ -78,7 +78,7 @@ https://twitter.com/KirillKilin/status/1585521246057500672
 
 https://twitter.com/KirillKilin/status/1585393162566057985
 
-
+https://discord.com/channels/849256203614945310/1003793330984984626/1039194911897030767
 
 
 

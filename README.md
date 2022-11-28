@@ -94,7 +94,7 @@ https://twitter.com/KirillKilin/status/1596536359824822272
 
 https://twitter.com/KirillKilin/status/1596942802666942464
 
-
+https://twitter.com/KirillKilin/status/1597244562191237121
 
 
 

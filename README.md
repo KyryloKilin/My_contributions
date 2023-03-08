@@ -116,7 +116,7 @@ https://www.youtube.com/watch?v=M0eSYleh6Jc
 
 https://twitter.com/KirillKilin/status/1633358918314328064
 
-
+https://medium.com/@Killin_83450/what-is-bware-labs-benefits-for-you-what-is-blast-powered-bware-labs-df1c14f8a300
 
 
 

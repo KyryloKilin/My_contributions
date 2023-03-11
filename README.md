@@ -120,7 +120,7 @@ https://medium.com/@Killin_83450/what-is-bware-labs-benefits-for-you-what-is-bla
 
 https://twitter.com/KirillKilin/status/1634612357052637186
 
-
+https://twitter.com/KirillKilin/status/1634608407960248321
 
 
 

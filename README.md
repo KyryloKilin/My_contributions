@@ -118,7 +118,7 @@ https://twitter.com/KirillKilin/status/1633358918314328064
 
 https://medium.com/@Killin_83450/what-is-bware-labs-benefits-for-you-what-is-blast-powered-bware-labs-df1c14f8a300
 
-
+https://twitter.com/KirillKilin/status/1634612357052637186
 
 
 

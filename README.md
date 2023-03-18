@@ -130,6 +130,7 @@ https://www.youtube.com/watch?v=kA3EtRmUH3U
 
 https://twitter.com/KirillKilin/status/1636780679424884747
 
+https://twitter.com/KirillKilin/status/1637116223837143042
 
 
 

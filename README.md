@@ -160,7 +160,7 @@ https://twitter.com/KirillKilin/status/1656992743846027268
 
 https://twitter.com/KirillKilin/status/1656669723780841473
 
-
+https://discord.com/channels/849256203614945310/1003793330984984626/1106234704413335626
 
 
 

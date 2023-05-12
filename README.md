@@ -164,7 +164,7 @@ https://discord.com/channels/849256203614945310/1003793330984984626/110623470441
 
 https://www.youtube.com/watch?v=MmQtwexHFz4&t=29s
 
-
+https://twitter.com/KirillKilin/status/1654755289248268290
 
 
 

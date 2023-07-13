@@ -174,7 +174,7 @@ https://www.youtube.com/shorts/WhVED_RvuHw
 
 https://www.youtube.com/watch?v=FB9yCdqRkDw
 
-
+https://twitter.com/KirillKilin/status/1679385887161962497
 
 
 

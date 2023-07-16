@@ -176,7 +176,7 @@ https://www.youtube.com/watch?v=FB9yCdqRkDw
 
 https://twitter.com/KirillKilin/status/1679385887161962497
 
-
+https://discord.com/channels/824256813200834580/981473710114500668/1129762003444043827
 
 
 

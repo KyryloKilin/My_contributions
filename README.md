@@ -182,7 +182,7 @@ https://discord.com/channels/984941796272521226/1100773076439941271/112975884106
 
 https://twitter.com/KirillKilin/status/1680832296369127424
 
-
+https://twitter.com/KirillKilin/status/1682752757437005824
 
 
 

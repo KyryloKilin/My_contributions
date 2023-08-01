@@ -184,9 +184,9 @@ https://twitter.com/KirillKilin/status/1680832296369127424
 
 https://twitter.com/KirillKilin/status/1682752757437005824
 
+https://twitter.com/KirillKilin/status/1686449937742016512
 
-
-
+https://twitter.com/KirillKilin/status/1686362129081786370
 
 
 

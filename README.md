@@ -212,7 +212,7 @@ https://twitter.com/KirillKilin/status/1686759367540875267
 
 https://twitter.com/KirillKilin/status/1686741954694934528
 
-
+https://www.youtube.com/watch?v=T0VYjCVYMeI&ab_channel=MycoinisBitcoiN
 
 
 

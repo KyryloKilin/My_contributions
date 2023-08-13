@@ -1,5 +1,15 @@
 # My_media_and_technical_contributions
 
+# NEW
+
+### NANSEN
+https://www.youtube.com/watch?v=T0VYjCVYMeI&ab_channel=MycoinisBitcoiN
+
+### FLEEK NETWORK
+https://twitter.com/KirillKilin/status/1689254987467980801
+
+# OLD
+
 http://173.249.14.243:3000/d/singlenode/single-charon-node-dashboard?orgId=1&refresh=10s
 
 https://minfin.com.ua/blogs/mcib/190807/
@@ -211,13 +221,4 @@ https://twitter.com/KirillKilin/status/1687332275384397825
 https://twitter.com/KirillKilin/status/1686759367540875267
 
 https://twitter.com/KirillKilin/status/1686741954694934528
-
-https://www.youtube.com/watch?v=T0VYjCVYMeI&ab_channel=MycoinisBitcoiN
-
-
-
-
-
-
-
 

@@ -10,6 +10,7 @@ https://twitter.com/KirillKilin/status/1689254987467980801
 
 ### REDSTONE
 https://link.medium.com/ko8K5nLsfCb
+https://link.medium.com/3bth7gfkvCb
 
 ### WEAVEDB
 https://twitter.com/KirillKilin/status/1691301377622810624

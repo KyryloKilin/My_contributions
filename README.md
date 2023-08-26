@@ -14,8 +14,13 @@ https://link.medium.com/ko8K5nLsfCb
 
 https://link.medium.com/3bth7gfkvCb
 
+https://twitter.com/KirillKilin/status/1695347481637167393
+
 ### WEAVEDB
 https://twitter.com/KirillKilin/status/1691301377622810624
+
+### DEFI
+https://www.youtube.com/watch?v=TgTbqqgrd7g&t=15s&ab_channel=MycoinisBitcoiN
 
 # OLD
 

@@ -21,6 +21,8 @@ https://twitter.com/KirillKilin/status/1701119256744562737
 
 https://discord.com/channels/786251205008949258/1118564292321624094/1154024408755744768
 
+https://twitter.com/KirillKilin/status/1712167007238361411
+
 ### WEAVEDB
 https://twitter.com/KirillKilin/status/1691301377622810624
 

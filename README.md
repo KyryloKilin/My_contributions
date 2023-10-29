@@ -23,6 +23,8 @@ https://discord.com/channels/786251205008949258/1118564292321624094/115402440875
 
 https://twitter.com/KirillKilin/status/1712167007238361411
 
+https://www.youtube.com/watch?v=UmLy6AA7VFk&ab_channel=THEHASH
+
 ### WEAVEDB
 https://twitter.com/KirillKilin/status/1691301377622810624
 

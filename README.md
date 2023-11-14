@@ -34,6 +34,10 @@ https://www.youtube.com/watch?v=TgTbqqgrd7g&t=15s&ab_channel=MycoinisBitcoiN
 ### LINEA
 https://twitter.com/KirillKilin/status/1722198027346289093
 
+### ALEO
+https://www.youtube.com/watch?v=Cw2QvNkJRCM
+https://www.youtube.com/shorts/2pgelJqxTbk
+
 # OLD
 
 http://173.249.14.243:3000/d/singlenode/single-charon-node-dashboard?orgId=1&refresh=10s

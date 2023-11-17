@@ -2,6 +2,9 @@
 
 # NEW
 
+### NAMADA
+https://twitter.com/KirillKilin/status/1725550803937620135
+
 ### NANSEN
 https://www.youtube.com/watch?v=T0VYjCVYMeI&ab_channel=MycoinisBitcoiN
 

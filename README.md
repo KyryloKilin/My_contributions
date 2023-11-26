@@ -2,6 +2,9 @@
 
 # NEW
 
+### BLAST
+https://twitter.com/KirillKilin/status/1726828507924226179
+
 ### NYM
 https://twitter.com/KirillKilin/status/1727320332363866429
 

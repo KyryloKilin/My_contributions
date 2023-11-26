@@ -2,6 +2,9 @@
 
 # NEW
 
+### NYM
+https://twitter.com/KirillKilin/status/1727320332363866429
+
 ### NAMADA
 https://twitter.com/KirillKilin/status/1725550803937620135
 

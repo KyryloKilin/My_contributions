@@ -48,6 +48,9 @@ https://www.youtube.com/watch?v=Cw2QvNkJRCM
 
 https://www.youtube.com/shorts/2pgelJqxTbk
 
+### AMNIS FINANCE
+https://www.youtube.com/watch?v=6zL_wCMAmNk&t=14s&ab_channel=THEHASH
+
 # OLD
 
 http://173.249.14.243:3000/d/singlenode/single-charon-node-dashboard?orgId=1&refresh=10s

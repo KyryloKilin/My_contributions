@@ -1,4 +1,4 @@
-# My_media_and_technical_contributions
+# Media_and_technical_contributions
 
 # NEW
 
